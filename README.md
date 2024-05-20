@@ -1,5 +1,5 @@
 ### Boas vindas ao meu perfil 💙💙
-Meu nome é Olavo Pinto Tom Mijado 
+Meu nome é Olavo Pinto Tom Mijado Thomas Turbando
 
 🎱 Estou estudando na Alura
 
